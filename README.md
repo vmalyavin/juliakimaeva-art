@@ -1,7 +1,5 @@
 # Julya Kimaeva
 
-[Website](http://juliakimaeva.art)
-
 ## Links
 - [Works (Instagram)](https://www.instagram.com/julyakimaeva)
 - [Contacts (Email)](mailto:uliakimaeva@gmail.com)
